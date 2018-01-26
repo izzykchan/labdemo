@@ -7,3 +7,5 @@ NO WAY KID. ITS LITTTT
 SO HECKIN LIT MY GOOD DUDE
 
 wooooooaaah. .__.
+
+we gonna have so many gotdamn conflicts my hands are shaking

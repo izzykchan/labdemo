@@ -8,4 +8,4 @@ SO HECKIN LIT MY GOOD DUDE
 
 wooooooaaah. .__.
 
-we gonna have so many gotdamn conflicts my hands are shaking
+what's gonna happennnnnnnnnn why is the text orange??
